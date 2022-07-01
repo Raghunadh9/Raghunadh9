@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Raghunadh9
-- 👀 I’m interested in Coding and Computer games
+- 👀 I’m interested in Coding and Cricket
 - 🌱 I’m currently learning The Complete 2022 Web Development Bootcamp 2022
 - 💞️ I’m looking to collaborate on who learning The Complete 2022 Web Development Bootcamp 2022
 - 📫 How to reach me ...
